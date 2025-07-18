@@ -8,7 +8,7 @@
 
 -🤝 Open to collaborating on projects involving data analysis, machine learning, and impactful dashboard creation to solve real-world problems.
 
--📫 Reach me at aiswaryaparayil1907@gmail.com or connect on LinkedIn.
+-📫 Reach me at aiswaryaparayil1907@gmail.com or connect on LinkedIn- linkedin.com/in/aiswarya-parayil-378936302.
 
 -💻 Explore my work on GitHub.
 
